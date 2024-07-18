@@ -1,4 +1,6 @@
-## 안녕하세요 호호😺
+😺
+🧥
+🩳
 
 <!--
 **Seah123123/Seah123123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
